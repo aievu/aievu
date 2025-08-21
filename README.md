@@ -38,7 +38,7 @@
 ###
 
 <p align="left">
-  💌 Estou aberto para oportunidades de colaboração! ⤵️
+  📩 Estou aberto para oportunidades de colaboração! ⤵️
 </p>
 
 <p align="left">
